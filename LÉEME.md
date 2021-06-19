@@ -1,0 +1,1 @@
+El pastel Red Velvet es un pastel típico del sur de estados unidos que obtiene su nombre del color rojo del pastel. El betún de queso crema es exquisito, seguro te encantará esta receta.
